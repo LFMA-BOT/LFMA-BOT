@@ -4,9 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach cruzangelsaid34@gmail.com
 - 😄 Pronouns: Ninguno
-- ⚡ Fun fact: Hola Me Llamo Ángel
-- Soy Programador Y Tengo 18 años
-- actualmente vivo en el estado de México
+- ⚡ Fun fact: 18 Years And I Am Currently Living In The State Of Mexico 
 - 
 - 
 
